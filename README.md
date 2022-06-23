@@ -1,6 +1,6 @@
 # FellipeFumasa06
-_eu sou o matheus ,
-e eu sou fellipe, 
+_eu sou o Matheus ,
+e eu sou Fellipe, 
 juntos nos somos 
 seus amiguinhos_
 
